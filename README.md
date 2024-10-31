@@ -1,1 +1,1 @@
-# Isba-Mujeeb
+My name is Isba Mujeeb and I study in NED UNIVERSITY in CSIT department. My main goal is to graduate and work in a large firm.
